@@ -19,7 +19,7 @@
 
 - 📄 Know about my experiences [don't](don't)
 
-- ⚡ Fun fact **I think I am funn6**
+- ⚡ Fun fact **I think I am funny**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
